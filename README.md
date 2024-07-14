@@ -1,4 +1,5 @@
-[ ![Uploading 1705435431353.png…]()
+[ ![Uploading Unlock-Your-Future-Become-a-Power-BI-Data-Analyst-Thrive-in-the-Data-Driven-World.jpg…]()
+
 
 
 
