@@ -1,4 +1,5 @@
-[ ![Uploading Unlock-Your-Future-Become-a-Power-BI-Data-Analyst-Thrive-in-the-Data-Driven-World.jpg…]()
+[ ![Uploading manager-openings_NW3bXTTFP.gif…]()
+
 
 
 
