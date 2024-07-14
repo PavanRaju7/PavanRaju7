@@ -1,4 +1,4 @@
-[![MasterHead]([Uploading Product-Manager-vs-Product-Owner_smngvd.webp…]()
+[![MasterHead]([Uploading Product-Manager-vs-Product-Owner_smngvd.webp…])
 )
 <h1 align="center">Hi 👋, I'm Pavan.R</h1>
 <h3 align="center">From Data to Decision: "Data Science in Action"</h3>
