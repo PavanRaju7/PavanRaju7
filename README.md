@@ -1,4 +1,5 @@
-[ ![1684824287169](https://github.com/user-attachments/assets/752fd6b0-58ed-4b94-9e6f-8248fbe30587)
+[ ![Uploading manager-openings_NW3bXTTFP.gif…]()
+
 
 
 
