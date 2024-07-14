@@ -1,4 +1,5 @@
-[![MasterHead](https://repository-images.githubusercontent.com/265904235/46eef600-9bab-11ea-87d9-ff5e73c39b97)
+[![MasterHead]([Uploading Product-Manager-vs-Product-Owner_smngvd.webp…]()
+)
 <h1 align="center">Hi 👋, I'm Pavan.R</h1>
 <h3 align="center">From Data to Decision: "Data Science in Action"</h3>
 <img align="right" alt="Coding" width="400" src=https://blog.imarticus.org/wp-content/uploads/2020/05/de.gif
