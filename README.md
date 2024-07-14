@@ -1,4 +1,5 @@
-![professional_image](https://github.com/user-attachments/assets/f5ee63ed-dc63-4a09-99ed-a1fbbe762f5e)[ 
+[ ![Uploading image.png…]()
+
 
 <h1 align="center">Hi 👋, I'm Pavan.R</h1>
 <h3 align="center">From Data to Decision: "Data Science in Action"</h3>
