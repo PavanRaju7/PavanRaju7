@@ -1,4 +1,5 @@
-[ ![Uploading manager-openings_NW3bXTTFP.gif…]()
+[ ![Uploading image.png…]()
+
 
 
 
