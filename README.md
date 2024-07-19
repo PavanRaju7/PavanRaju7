@@ -1,5 +1,4 @@
-![1_cR5r7HsUj1yyf7m3zKD4Aw](https://github.com/user-attachments/assets/b6137b69-b508-43cc-a686-27ab126ba4f1)
-
+![1711617449544](https://github.com/user-attachments/assets/35a47b2c-8312-4178-8328-be129b4f92a2)
 
 
 
