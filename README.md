@@ -16,7 +16,7 @@
 
 - 👨‍💻 All of my projects are available at [https://github.com/PavanRaju7](https://github.com/PavanRaju7)
 
-- 💬 Ask me about **Machine Learning/Data Science/Tableau/My SQL**
+- 💬 Ask me about **Product management/Product Design/Machine Learning/Data Science**
 
 - 📫 How to reach me **pavanraju117@gmail.com**
 
