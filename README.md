@@ -1,4 +1,4 @@
-[ [![Uploading image.png…]()](https://miro.medium.com/v2/resize:fit:1400/1*cR5r7HsUj1yyf7m3zKD4Aw.jpeg)
+[ ![Uploading 1_cR5r7HsUj1yyf7m3zKD4Aw.jpg…]()
 
 
 
