@@ -1,5 +1,4 @@
-![1711617449544](https://github.com/user-attachments/assets/35a47b2c-8312-4178-8328-be129b4f92a2)
-
+![character-animation](https://github.com/user-attachments/assets/0bf37cd8-f99f-4089-8a7a-6a53ae10d299)
 
 
 
